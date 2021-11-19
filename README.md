@@ -5,7 +5,7 @@
 - 🕺  I'm also a Folk Dancer at 'Martisorul' Cluj
 - 💰 În viață degeaba ai bani , dacă n-ai mulți 💰
 -                 L🅔ARNING
--              STU🅓YING
+-               STU🅓YING
 -                 S🅤CCES
 -               DIS🅒OVERY
 -               CRE🅐TIVITY
