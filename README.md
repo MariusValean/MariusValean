@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MariusValean
-- 👀 I’m interested in getting new experiences
+- 👀 I’m interested in learning some new skills
 - 🌱 I’m currently learning Chemical Engeneering
-- 📫 How to reach me : by e-mail : lmv_2001@yahoo.com
+- 📫 Reach me by e-mail : lmv_2001@yahoo.com
 - 🕺  I'm also a Folk Dancer at 'Martisorul' Cluj
 - 💰 În viață degeaba ai bani , dacă n-ai mulți 💰
 -                 L🅔ARNING
